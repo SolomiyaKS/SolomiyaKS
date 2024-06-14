@@ -1,2 +1,2 @@
-How to reach me telegram: @imSolomiYA; email: sergiivnaks@gmail.com
+How to seach me telegram: @imSolomiYA; email: sergiivnaks@gmail.com
 
