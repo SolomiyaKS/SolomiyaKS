@@ -1,4 +1,4 @@
-## **📫 How to seach me**
+## **📫 Contact me personally on**
 * telegram: @imSolomiYA; 
 * email: sergiivnaks@gmail.com
 
