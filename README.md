@@ -1,5 +1,5 @@
 ## **📫 Contact me personally on**
-* telegram: [@ImSaasha](https://t.me/Solomiia_ks); 
+* telegram: [@Solomiia_ks](https://t.me/Solomiia_ks); 
 * email: sergiivnaks@gmail.com
 
 ![Static Badge](https://img.shields.io/badge/Telegram-%2326A5E4?style=flat&logo=telegram&logoColor=%2326A5E4&labelColor=white&color=white)
